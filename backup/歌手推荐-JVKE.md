@@ -11,7 +11,9 @@
   尽管成就斐然，JVKE的音乐也引发了专业乐评的争议。部分听众认为他的编曲过于繁杂，混音处理存在失衡，人声被编曲掩盖的问题在专辑整体聆听时尤为明显。例如《This Is What Falling Out of Love Feels Like》中，808鼓点的强行加入虽拯救了“说唱部分”，却破坏了整体的情感连贯性。这种“取其精华，去其糟粕”的短视频式创作逻辑，在成就其传播力的同时，也被批评为“牺牲艺术完整性以迎合流量”。
  
 但他的支持者则认为，这种争议恰恰体现了他的先锋性。在AI作曲、算法推荐日益主导音乐市场的当下，JVKE用“不完美”的人声、破碎的结构对抗标准化生产，反而凸显了人类情感的真实温度。他的现场演出更是对这种质疑的有力回应：从《今夜秀》到成都巡演，他的舞台通过视觉艺术与音乐的结合（如梵高画作风格的灯光设计），将碎片化的录音室作品重构为沉浸式的情感剧场。
- JVKE的价值不仅在于他创造了现象级热单，更在于他重新定义了音乐与时代的关系。他将古典底蕴与互联网思维熔铸，把个人情感转化为全球共鸣，在流媒体、短视频、现场演出的多维空间中构建起独特的音乐宇宙。尽管争议犹存，但他的每一次创作都是对音乐可能性的勇敢试探——正如他在《Golden Hour》中所唱：“In your golden hour, time stands still”，他的音乐正是在这永恒与瞬间的张力中，为我们捕捉到了属于这个时代的艺术灵光。![this is what slow dancing feels like-JVKE.jpg](https://github.com/user-attachments/assets/1409767c-38f4-480e-b054-4ea3c7bd6c9d)
+ JVKE的价值不仅在于他创造了现象级热单，更在于他重新定义了音乐与时代的关系。他将古典底蕴与互联网思维熔铸，把个人情感转化为全球共鸣，在流媒体、短视频、现场演出的多维空间中构建起独特的音乐宇宙。尽管争议犹存，但他的每一次创作都是对音乐可能性的勇敢试探——正如他在《Golden Hour》中所唱：“In your golden hour, time stands still”，他的音乐正是在这永恒与瞬间的张力中，为我们捕捉到了属于这个时代的艺术灵光。
+[Apple Music歌手主页](https://music.apple.com/cn/artist/jvke/1439925456?ls)
+![this is what slow dancing feels like-JVKE.jpg](https://github.com/user-attachments/assets/1409767c-38f4-480e-b054-4ea3c7bd6c9d)
 
 ![this is what winter feels like-JVKE.jpg](https://github.com/user-attachments/assets/f07545e8-7f29-4a1e-b456-9b9291cf2ddb)
 
